@@ -4,4 +4,5 @@
 
 ## SNS
 
-> Coming soon...
+- X: https://x.com/ens_geom
+- Instagram: https://www.instagram.com/ensemblegeometrique/
